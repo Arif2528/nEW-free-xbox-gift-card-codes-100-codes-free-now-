@@ -3,7 +3,7 @@ Hey Friends, Are you ready to level up your gaming experience with some exciting
 
 [✅ CLICK HERE TO GET NOW FREE XBOX GIFT CARD ✅](https://earnsters.com/xbox-gift-card/)
 
-[✅ CLICK HERE TO GET NOW FREE XBOX GIFT CARD ✅(https://earnsters.com/xbox-gift-card/)
+[✅ CLICK HERE TO GET NOW FREE XBOX GIFT CARD ✅](https://earnsters.com/xbox-gift-card/)
 
 Update: 2024-2025 Latest Xbox Gift Card Redeem Codes In December 2024
 
